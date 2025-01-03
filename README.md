@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Le-Nuss
 - 👀 I’m interested in: None of your business
-- 🌱 I’m currently learning the ways of hazelnut
+- 🌱 I’m currently learning the ways of the Hazelnut
 - 💞️ I’m looking to collaborate on: A game with friends
 - 📫 How to reach me: Hopefully never
 - 😄 Pronouns: Nut
